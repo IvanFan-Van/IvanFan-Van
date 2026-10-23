@@ -10,3 +10,5 @@ Feel free to ask me any questions. I real all emails!
 
 [Chinese CV](https://canva.link/r1qoterf2h8l6qn)
 [English CV](https://ivanfan-van.github.io/2026/10/23/CV-English/)
+
+Also, welcome to my blog site! [Ivan's Scribbles](https://ivanfan-van.github.io/)
